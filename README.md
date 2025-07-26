@@ -35,6 +35,7 @@ Je suis en formation dans le domaine des **réseaux informatiques**, avec un int
 ## 📫 Me contacter
 
 - 📧 Email : [mvomojuniorkeny@gmail.com](mailto:mvomojuniorkeny@gmail.com)
+- linkding   https://www.linkedin.com/feed/?nis=true&&lipi=urn%3Ali%3Apage%3Afeed_index_index%3B9f1658d8-8350-461b-9e3c-8ebeff558dbd
 
 ---
 
